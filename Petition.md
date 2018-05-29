@@ -7,3 +7,4 @@ Signater:
 
 Alchemist/Pablo   I had a lot of fun in our different rp, and relation with the years is it on Solarune or Sinfar. I still remember when you use Sinfar as inspiration for Solarune.
 
+I, Criimstar add my vote for yes please.
